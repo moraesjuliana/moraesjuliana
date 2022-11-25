@@ -4,8 +4,10 @@
 - 🌱atualmente estou aprendendo pensamento computacional
 - 👯 estou procurando colaborar com meus colegas de classe .
 - 🤔 estou dedicada em estudar para o Pas 
--para chegar atè mim entre nas minhas redes sociais
-- 📫 How to reach me: ...
-- 😄 Pronouns: .
-- ⚡ Fun fact: ...
+- 📫 para chegar atè mim entre nas minhas redes sociais
+- Nesse ano estou a estudar no periodo integral
+- ⚡ Fun fact:tenho 3 gatos,1 cachorro e uma calopsita 
+- meus maior hobbies são brincar com minha cachorra,sair andar com minhas amigas etc 
+- estou me dedicando bastante aos estudos esse ano com o intuito de passar na prova do pas 
+- Atualmente moro apenas com minha mãe,tenho um padrasto e uma madrasta,uma irmã e dois sobrinhos 
 -->
