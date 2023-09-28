@@ -1,3 +1,5 @@
+![image](https://github.com/moraesjuliana/moraesjuliana/assets/116094819/3ae0cde5-deb2-4440-9116-c5f287d0bf61)
+
 # sobre mim  👋
 -meu nome é juliana 
 - 🔭 meu email de contato è @juliana.aparecidade.moraes@escola.pr.gov.br 
